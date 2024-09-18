@@ -1,1 +1,0 @@
-# em-busca-da-cura
